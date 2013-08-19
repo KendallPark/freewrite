@@ -2,11 +2,11 @@ She would sometimes imagine them skydiving together. Her parachute would fail, a
 
 She wondered what kind of deep truths would be communicated between their eyes during that doomed, weightless minute. He would know. He would know then.
 
-Presently he was peeling an orange on the other side of the cafeteria table. He glanced up. Their gaze clicked for a second, but then his attention returned to the orange peel. Years of friendship had ground down the conversation topics. This was not a bad thing. They often spent the evenings in his dorm room, working on homework to the throb of dubstep or Mozart or The Eli Young Band. 
+Presently he was peeling an orange on the other side of the cafeteria table. He glanced up. Their gaze clicked for a second, but then his attention returned to the orange peel. Years of friendship had worn down the conversation topics. This was not a bad thing. They often spent the evenings in his dorm room, working on homework to the throb of dubstep or Mozart or The Eli Young Band. 
 
-Sometimes she would wake up in night to find him basking in dim glow of his laptop, having stolen away into her room, which she always kept unlocked for that exact reason. It's quieter on the girls' floors, he would say. She would wish him goodnight and let the tap-tap-tap of his keyboard bleed into her dreams. He was always gone when she woke up in the morning.
+Sometimes she would wake up in night to find him basking in dim glow of his laptop, having stolen away into her room, which she always kept unlocked for that exact reason. It's quieter on the girls' floors, he would say. She would wish him goodnight and let the tap-tap-tap of his keyboard bleed into her dreams. He was always gone when she woke in the morning.
 
-It was senior year and the last bits of her patience were being scraped away. They had had THAT conversation sophomore year. She spent the rest of her college years waiting. To her the answer was clear, like a long and tiresome math problem that nonetheless arrived at the same conclusion. But he lived with his nose stuck in the present only concerned himself with the equations due the following day.
+It was senior year and the last bits of her patience were being scraped away. They had had THAT conversation sophomore year. She spent the rest of her college years waiting. To her the answer was clear, like a long and tiresome math problem that nonetheless arrived at the same conclusion. But he lived with his nose stuck in the present and only concerned himself with the equations due in class the next day.
 
 I don't like making a decision until I have sufficient facts, he would say. About everything.
 
