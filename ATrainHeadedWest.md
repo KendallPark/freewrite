@@ -8,11 +8,11 @@ Sometimes she would wake up in night to find him basking in dim glow of his lapt
 
 It was senior year and the last bits of her patience were being scraped away. They had had THAT conversation sophomore year. She spent the rest of her college years waiting. To her the answer was clear, like a long and tiresome math problem that nonetheless arrived at the same conclusion. But he lived with his nose stuck in the present only concerned himself with the equations due the following day.
 
-I don't like choosing a path until I have sufficient facts, he would say. About everything.
+I don't like making a decision until I have sufficient facts, he would say. About everything.
 
 He had no plans for after graduation. Only a vague declaration of grad school. But it was their last semester and he had yet to touch an application. She had already jumped through those hoops and secured her first salaried job--a research position at one the California universities.
 
-Do you not feel it? she would wonder at him. The sense of urgency. The cadence of life was picking up, an accelerating beat that would soon thrust them into their separate futures. 
+Do you not feel it? she would wonder at him. The sense of urgency. The cadence of life was picking up, an accelerating beat that would soon thrust them into separate futures. 
 
 Tick-tick-tick, she muttered to herself.
 
@@ -24,4 +24,4 @@ They laughed at the predicament from their respective sides of the tracks. He mo
 
 A wave of emotion swelled in her chest. Grief? No, no, she shook her head. Pity.
 
-When the train had finally passed he looked for her on the other side but she was not there.
+When the train had finally passed he would look for her on the other side but she would not be there.
