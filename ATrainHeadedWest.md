@@ -18,7 +18,7 @@ Tick-tick-tick, she muttered to herself.
 
 Did you say something? he asked. They were walking to convenience store. At that moment the railroad crossing warning lights started blinking. She instinctively sprinted forward, across the tracks, ducking under the the crossing levers as they closed off the road. A train horn blared in the east. 
 
-He was not with her. She turned backed to find him on the opposite side of the tracks, cut off by the railroad guards. The train could be seen in the distance. He still had ample time to maneuver around the bars that were built to obstruct cars, not humans. But there was a $250 fine for crossing while the guards were down. There were no police cars nearby, but she knew he wouldn't risk this.
+He was not with her. She turned backed to find him on the opposite side of the tracks, cut off by the railroad guards. The train could be seen in the distance. He still had ample time to maneuver around the bars that were built to obstruct cars, not humans. But there was a $250 fine for crossing while the guards were down. There were no police cars within sight, but she knew he wouldn't risk this.
 
 They laughed at the predicament from their respective sides of the tracks. He mouthed words but they were drowned by the thunder of the approaching train. Then he had disappeared from her view, the train cars roaring and screeching between them. Electric sparks shot from the steel wheels. 
 
