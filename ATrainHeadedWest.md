@@ -22,6 +22,6 @@ He was not with her. She turned backed to find him on the opposite side of the t
 
 They laughed at the predicament from their respective sides of the tracks. He mouthed words but they were drowned by the thunder of the approaching train. Then he had disappeared from her view, the train cars roaring and screeching between them. Electric sparks shot from the steel wheels. 
 
-A wave of emotion swelled in her chest. Grief? No, no, she shook her head.
+A wave of emotion swelled in her chest. Grief? No, no, she shook her head. Pity.
 
-Pity.
+When the train had finally passed he looked for her on the other side but she was not there.
