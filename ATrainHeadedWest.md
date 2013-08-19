@@ -20,7 +20,7 @@ Did you say something? he asked. They were walking to convenience store. At that
 
 He was not with her. She turned backed to find him on the opposite side of the tracks, cut off by the railroad guards. The train could be seen in the distance. He still had ample time to maneuver around the bars that were built to obstruct cars, not humans. But there was a $250 fine for crossing while the guards were down. There were no police cars within sight, but she knew he wouldn't risk it.
 
-They laughed at the predicament from their respective sides of the tracks. He mouthed words but they were drowned by the thunder of the approaching train. Then he had disappeared from her view, the train cars roaring and screeching between them. Electric sparks shot from the steel wheels. 
+They laughed at the predicament from their respective sides of the tracks. He mouthed words but they were drowned by the thunder of the approaching train. Then he had disappeared from her view, the freight cars roaring and screeching between them. Electric sparks shot from the steel wheels. 
 
 A wave of emotion swelled in her chest. Grief? No, no, she shook her head. Pity.
 
