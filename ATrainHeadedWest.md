@@ -14,7 +14,7 @@ I don't like choosing a path until I have sufficient facts, he would say. About 
 
 He had no plans for after graduation. Only a vague declaration of grad school. But it was their last semester and he had yet to touch an application. She had already jumped through those hoops and secured her first salaried job--a research position at one the California universities.
 
-Do you not feel this? she would wonder at him. The sense of urgency. The cadence of life was picking up, an accelerating beat that would soon thrust them into their separate futures. 
+Do you not feel it? she would wonder at him. The sense of urgency. The cadence of life was picking up, an accelerating beat that would soon thrust them into their separate futures. 
 
 Tick-tick-tick, she muttered to herself.
 
