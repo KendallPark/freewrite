@@ -10,7 +10,7 @@ You're the last person I'd expect to propose a final solution. Why not imprison 
 
 In the new society it will hurt the individual too much to see his neighbor's freedoms taken away.
 
-A society such as the one would wish to create will be crippled, remarked Cain. Who will be able to make the tough calls? Wouldn't it cause a sufficiently empathetic individual great anxiety to decide who should live and who should die? And what of justice? Justice calls for extreme measures, at times.
+A society such as the one you wish to create will be crippled, remarked Cain. Who will be able to make the tough calls? Wouldn't it cause a sufficiently empathetic individual great anxiety to decide who should live and who should die? And what of justice? Justice calls for extreme measures, at times.
 
 Which is why there must be an arbiter. This man would perform the brutal tasks that society requires. This man would sacrifice his soul for the good of society.
 
